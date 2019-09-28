@@ -1,5 +1,7 @@
-##Reflective Entry: PRINT I 
-####Boutayna Chokrane 
+## Reflective Entry: PRINT I 
+
+#### Boutayna Chokrane 
+
 The renaissance of old-fashioned printing might not just be a byproduct of digital fatigue. I wouldn’t necessarily disagree – my personal distaste for e-books would support the prior argument.  And when I get a phone notification that says I’ve spent thirty minutes looking at Instagram, I immediately grab the closest book I can find. But I don’t know if it’s because I’m tired of looking at a screen or because the notification instilled shame, to some degree, in me. 
 
 We’ve talked about how we assign virtue to strenuous tasks. With that reasoning, letterpress printing is more respectable than keyboard typography. Technology has made production and printing significantly easier:
