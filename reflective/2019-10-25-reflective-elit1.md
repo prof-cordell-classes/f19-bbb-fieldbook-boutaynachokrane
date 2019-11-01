@@ -1,4 +1,4 @@
-##Reflective Entry: E-Lit I
+## Reflective Entry: E-Lit I
 ### Boutayna Chokrane 
 
 In "The Reading Brain in the Digital Age" article, the father of the young girl from the viral video wrote, "Technology codes our minds." I thought about this question a lot during this week's classes. 
