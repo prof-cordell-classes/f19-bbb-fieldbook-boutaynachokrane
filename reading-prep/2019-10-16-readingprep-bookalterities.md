@@ -1,4 +1,4 @@
-##Reading Prep: Book 
+## Reading Prep: Book Alterities 
 #### Boutayna Chokrane 
 
 ### Questions & Observations
