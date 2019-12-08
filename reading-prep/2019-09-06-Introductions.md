@@ -1,8 +1,8 @@
-##_Reading Prep: Introductions Week_
+## Reading Prep: Introductions Week_
 
-#####Boutayna Chokrane
+##### Boutayna Chokrane
 
-####Questions and Observations
+#### Questions and Observations
 
 1. **Is Originality Dead?** As a society, we are constantly searching for originality. However, I’ve come to learn that originality (as we define it) no longer exists. It is impossible to generate a completely novel idea, without repurposing existing ones. Livingstone argues we’ve lost touch with originality. I don’t think so. Aren’t we just redefining originality? “We can ‘put the copy of the original into situations which would be out of reach for the original itself.” I would argue that it is absolutely original. To not only reproduce a work in a different context, but to introduce it to open doors that were once closed would be a first and hence, original.
 
