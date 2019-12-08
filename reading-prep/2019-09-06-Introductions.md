@@ -1,4 +1,4 @@
-## Reading Prep: Introductions Week_
+## Reading Prep: Introductions Week
 
 ##### Boutayna Chokrane
 
